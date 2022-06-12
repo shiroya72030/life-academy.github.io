@@ -1,0 +1,1 @@
+# life-academy.github.io
